@@ -1,1 +1,1 @@
-My Images used for my mod repositories!
+Images used for my mod repositories!
